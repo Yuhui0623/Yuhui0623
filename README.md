@@ -1,0 +1,4 @@
+-  Hi, I’m SIRIUS
+-  I’m interested in Digital Art & 3D Model Making.
+-  I’m currently learning C4D.
+-  How to reach me: grgr0623@hotmail.com
